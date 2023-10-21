@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @wayztf
+- 👀 I am a german guy, who likes football, music and playing videogames
+- I lately found myself into coding and its fun!
